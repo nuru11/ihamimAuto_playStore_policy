@@ -1,0 +1,1 @@
+# ihamimAuto_playStore_policy
